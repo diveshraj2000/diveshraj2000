@@ -1,4 +1,4 @@
-**Divesh Rajput
-|4* AT CODECHEF|
+Divesh Rajput
+|4* at CODECHEF|
 Web Developer
-**
+
