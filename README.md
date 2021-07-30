@@ -1,4 +1,4 @@
 Divesh Rajput
-|4* at CODECHEF|
+|4* at Codechef|
 Web Developer
 
